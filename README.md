@@ -10,4 +10,4 @@
 
 本站专注于提供高品质视频内容，涵盖无码、国产、三级等热门类型。支持多终端在线播放，画质清晰流畅，界面简洁无广告，致力为用户打造安心舒适的观影环境。
 
-<span style="display:none;">[Canonical link](）</span>
+<span style="display:none;">[Canonical link](https://github.com/linh20250708/linh2 ）</span>
